@@ -24,7 +24,7 @@ Ayoo, blocked text, weeee
 
 [Misery x Cpr Tiktok](https://youtu.be/nU-MMfejDoI)
 
-![Monty ~~Sus~~](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pillowfort.social%2Fsearch%2Fmonty&psig=AOvVaw0MgFSMIVYDKZbFm6XZPCaR&ust=1642551274131000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCLDZ9LuCuvUCFQAAAAAdAAAAABAL)
+![Monty ~~Sus~~](https://preview.redd.it/gb11nw5tv2881.jpg?width=960&crop=smart&auto=webp&s=fbc8b217982228b7499138d5aca8f0f55381d1da)
 
 - [x] Homework
 - [ ] My will to live
