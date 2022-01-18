@@ -8,11 +8,11 @@
 Ayoo, blocked text, weeee
 ```
 
-** I have made this bold, bee **
+**I have made this bold, bee**
 
-* i wanna cry, L bozo italic *
+*i wanna cry, L bozo italic*
 
-*** Im the _bozo_ ***
+***Im the _bozo_***
 
 - i have homework
 - i have to stream
