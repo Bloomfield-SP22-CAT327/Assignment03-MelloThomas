@@ -24,6 +24,12 @@ Ayoo, blocked text, weeee
 
 [Misery x Cpr Tiktok](https://youtu.be/nU-MMfejDoI)
 
+## Yes
+
+**Bing Bong is in asset folder when clicked**
+
+![bingbong](https://github.com/mello-jams/Assignment03Part3-MelloThomas/blob/main/assests/bingbong.jpg)
+
 ![Monty ~~Sus~~](https://preview.redd.it/gb11nw5tv2881.jpg?width=960&crop=smart&auto=webp&s=fbc8b217982228b7499138d5aca8f0f55381d1da)
 
 - [x] Homework
@@ -33,9 +39,3 @@ Ayoo, blocked text, weeee
 :eggplant:  :eye: 	:lips:  :eye:
 
 
-
-## Yes
-
-**I dont know if this is correct**
-
-![bingbong](https://github.com/mello-jams/Assignment03Part3-MelloThomas/blob/main/assests/bingbong.jpg)
